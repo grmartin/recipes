@@ -21,7 +21,7 @@ A hearty, creamy soup inspired by Zuppa Toscana, using halal sausage and **beef 
 - 3–4 cups kale, stems removed and leaves chopped.
 - 1–2 tablespoons olive oil (only if you need extra fat beyond the beef bacon).
 - 1 teaspoon Italian seasoning, optional.
-- 1/2 teaspoon crushed red pepper flakes, optional.
+- ½ teaspoon crushed red pepper flakes, optional.
 - Salt and black pepper, to taste.
 - Grated parmesan (optional, if you’re comfortable with it) for serving.
 
